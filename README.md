@@ -1,2 +1,2 @@
 # website-psi-caroline-lima
-Site profissional da Psicóolga Caroline Lima
+Site profissional da Psicóloga Caroline Lima
